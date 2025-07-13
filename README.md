@@ -161,7 +161,7 @@ Tool ini dirilis di bawah [MIT License](https://opensource.org/licenses/MIT)
 
 Untuk update, pengumuman, dan informasi lainnya, silakan bergabung di saluran WhatsApp resmi kami:
 
-👉 [https://whatsapp.com/channel/0029VaudLHc7YSd9S9c9800c](https://whatsapp.com/channel/0029VaudLHc7YSd9S9c9800c)
+👉 [𝐍𝐨𝐜𝐭𝐮𝐫𝐧𝐚𝐥𝐁𝐲𝐭𝐞𝐬](https://whatsapp.com/channel/0029VaudLHc7YSd9S9c9800c)
 
 ---
 
